@@ -12,5 +12,8 @@ Tiago Sarafim Cirqueira — 21293
 
 Isabella Santos de Albuquerque Zanin - 105446
 
-Pedro Henrique Pedroso - 
+Pedro Henrique Pedroso - 106627
+
+Carolina Vitoria Celso Nunes - 106749
+
 
